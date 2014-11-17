@@ -1,0 +1,1 @@
+Created by <a href="http://www.twitter.com/ItzWarty/">@ItzWarty</a> and hosted at <a href="http://www.dargon.io/">dargon.io</a>. I'm not logging any of your bits.
